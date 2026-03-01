@@ -1,1 +1,1 @@
-# discord-injection
+# yani teenage kardesim senin anlayacagın
